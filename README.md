@@ -10,4 +10,4 @@ Meu nome é Ketlhyn Silva
 
 ketlhyn.maia@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/cat-gif-26367573)
+![](https://media.tenor.com/_gYD08oGP8MAAAAd/cat-cute-cat.gif)
